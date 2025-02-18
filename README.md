@@ -1,1 +1,1 @@
-# Klara_Cryptocurrency
+# Klara Cryptocurrency
